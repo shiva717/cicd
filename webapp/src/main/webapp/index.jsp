@@ -1,1 +1,1 @@
-Wecome to intelliq 27/28
+Wecome1 to intelliq 27/28
